@@ -50,8 +50,6 @@ Monday morning the weather was a big change from the previous day: grey, ominous
 
 [![](https://c1.staticflickr.com/1/353/19551102194_d006b1ec61_c.jpg)](https://flic.kr/p/vMEvwS)
 
-[![](https://c1.staticflickr.com/1/320/19552773973_de02eab685_c.jpg)](https://flic.kr/p/vMP5uD)
-
 This turned out to be a very good idea, as the approach involves weaving through alpine scrub, hopping across a large talus-field, and finding the right ramp upwards to the “rope-up” area before the real climbing begins. It took us a couple hours to find, as the route was not obvious to us from our camp nor did it clearly appear to us as we navigated around the base of Pingora. First we went too far to the north, then circled back back south before attempting to climb upwards towards the face. Traversing southward still, we came upon the rope-up area almost from above. From there, we able to identify where the climb would lead. Having found our destination, and with the weather showing signs of clearing, we made our way back to camp, leaving karins along the way to guide us on our approach the following day. 
 
 Back at camp, it seemed like we may have a shot at climbing the South Buttress, though we were wary of how fast it seemed conditions could change. Waiting around wasn’t easy, since we were both pretty stoked to climb, so we geared up and made our way towards the shoulder of Pingora, which we had to scramble up via a series of switchbacks to arrive at the base of the South Buttress. Halfway up, rain started coming down, so we took cover beneath a small overhang and contemplated our situation. After some deliberation, we retreated back to camp, slightly disheartened. After not too long, however, the rain dissipated, and we charged back up for another go. 
