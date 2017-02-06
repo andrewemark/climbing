@@ -4,7 +4,6 @@ title:  "Wind River Range"
 date:   2017-01-19 11:38:56 -0600
 categories: tripreport 
 ---
-From Texas to the Wind River Range
 
 Clayton and I had been planning to do our first alpine climb in Grand Teton National Park on the classic Exum Direct route. However, just two weeks before our trip, we realized that climbing in the Tetons was going to be somewhat of a hassle. We had already booked our flight from Saturday through Wednesday, but, because the Tetons are so popular in summer, competition for backcountry camping permits on the mountains is stiff. That meant we would have to wake up on Sunday morning, well before dawn, and wait at the ranger station for a permit. Once we got a permit, we’d spend the rest of the day hiking in, setting up camp, and doing a smaller climb. So, we’d throw away a potential full day of climbing on a short, 5 day trip. So, after some Googling and talking to a couple friends, we completely changed our plans: we’d do some climbs in the Cirque of the Towers instead. 
 
@@ -45,6 +44,8 @@ The last two pitches carried us over easy terrain to the summit block, where we 
 [![](https://c1.staticflickr.com/1/417/19985678178_8a00aaeb35_c.jpg)](https://flic.kr/p/ws4PQf)
 
 The decent involved about 4 rappels down the backside of the ridge, a lot of scrambling, and some easy climbing to pass through the Overhanging Tower col that lies to the southeast of the Wolf’s Head. After exiting the col, we descended an incredibly loose and annoying scree field, then glissaded some remaining snow. This route made for an awesome first alpine rock experience, but we were seriously exhausted that evening. 
+
+*Clayton takes over writing the trip report*
 
 Monday morning the weather was a big change from the previous day: grey, ominous clouds filled the sky, cold wind gusted through the cirque, and precipitation threatened. Realizing that it wasn’t going to be a prime climbing day, we slept in a bit, still recovering from our previous day’s charge into high-altitude climbing. The plan for the day had been to climb the South Buttress, but given the conditions we decided to wait for improvement and instead scope out the approach to the Northeast Face. 
 
