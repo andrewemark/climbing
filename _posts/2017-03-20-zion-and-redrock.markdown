@@ -5,7 +5,7 @@ date:   2017-03-20 11:38:56 -0600
 categories: tripreport 
 ---
 
-RED ROCK (Andrew’s voice)
+# RED ROCK (Andrew’s voice)
 
 Clayton and I flew from Austin to Las Vegas on a late flight one Wednesday evening in November. After loading up on a burrito from a local Mexican food joint at 1am (Tacos Mexico, open 24 hours, a great pit stop if you ever land late at night in Vegas…), we arrived in a smoky casino near the airport to spend the night. As is typical on climbing trips, all that went through my brain that night was the big sandstone walls we’d soon be climbing. I couldn’t sleep in, and Clayton is a good sport, so we were cruising in the rental car towards Red Rock Canyon by 8:30am the following morning. 
 
@@ -15,7 +15,11 @@ We opted to climb a smaller Red Rock chimney on our first day in the canyon. We 
 
 We approached the climb in Pine Creek Canyon in about 30-40 minutes at a leisurely pace. The route was relatively easy to find, lying on the southeast face of Mescalito, just around the corner from a popular route, The Cat in the Hat. Upon arriving at the base, Clayton climbed up a low fifth class pitch and set a belay at a tree. I arrived at the belay and launched off into the 200+ foot chimney pitch. This thing was really a squeeze. At one point, I had to exhale fully, slide body into the deep part of the chimney, place pro, and exhale deeply to get out and climb again. I also took a bit of skin off my nose while trying to turn my head in the squeeze. About 100 feet up the pitch, I found a good belay and decided to let Clayton do the other half of the pitch for practice. He led us through a couple more cruxy chimney sections before emerging on the face.
 
+[![](https://c1.staticflickr.com/6/5612/30291180543_f127dfd595_c.jpg)](https://flic.kr/p/N9JdDv)
+
 By the time we were both at the next anchor, the chimney was over, and we were pretty tired. This thing was a solid 5.9 chimney climbing (we presumed). We decided to skip the last pitch (some 5.8 crack and face climbing), and do some single pitch climbs in Pine Creek Canyon in an effort to conserve energy for Epinephrine. We easily scrambled down and climber’s left to find the rappel stations for The Cat in the Hat, allowing an easy descent. On our hike out, we got on one fun 5.9 finger crack, Straight Shooter, but then had to make a run for the parking lot before the road closed for the evening. 
+
+[![](https://c1.staticflickr.com/6/5807/30291182193_6acd4ff812_c.jpg)](https://flic.kr/p/N9Je8X)
 
 The next day, we awoke very early in the Red Rock campground, fixed a quick breakfast, and set off towards Black Velvet Canyon. By early, I mean before 4am—we knew it was a popular route, and our goal was to be first in line. We cruised down the rough roads to the trailhead without much trouble and shortly arrived in the parking lot. We left the car around 5:30am and arrived at the base of Epinephrine after about an hour of hiking. We only got lost and bushwhacked in the dark for about 20 minutes—our advice is to stay in the dry creek bed for longer than you think! 
 
@@ -25,20 +29,40 @@ We scrambled up easy 5th class ledges just upstream in order to bypass the bolts
 
 And then began the main event: a wide, clean chimney with smooth walls. I was stoked to get to lead this pitch. I began by climbing up relatively easy cracks with ample protection opportunities until the cracks petered out. And then it was time to get into chimney climbing mode. For much of the pitch, there is protection to be had deep in the chimney. However, getting deep in the chimney is much more taxing than climbing in the middle of it. So the pitch turned into a runout affair with me placing pro about every 15 feet or so. The chimney felt solid, though tiring and spooky. When the chimney widened near the top, I was able to lock off my legs horizontally, which offered a fantastic rest. Towards the end of the pitch, the chimney pinched down a bit. I got deeper inside to get some protection before reaching a decent belay ledge on the chimney wall. 
 
+[![](https://c1.staticflickr.com/6/5783/30291182893_30441b1f74_c.jpg)](https://flic.kr/p/N9Jem2)
+
 Clayton ascended the chimney in style, though the leader pack he trailed came unclipped at one stage. Luckily for the 4-5 parties behind us, the pack got wedged in the chimney only a short distance below. First lesson from the trip: always use a locking carabiner when trailing the pack!  When Clayton arrived at the belay, he was gassed from trailing the pack, so in the interest of time, I offered to lead the next chimney pitch to the top of the Black Tower.
 
 While Clayton thought this pitch was easier, I actually found it to be harder, though most likely because it was necessarily run out and I was facing the wrong direction. Definitely go right shoulder in. The protection was scant other than a couple of bolts a good way up the pitch. Clayton had absolutely no issues with the climbing on this pitch. But, he did manage to drop something again. Clayton yells “Clif Bar!!!” to the parties below, which they translate to “ROCK!!!” to all the parties below them. Luckily, nobody was hurt and Clayton arrives at the belay feeling a bit embarrassed about his butterfingers, but stoked to start leading again. 
 
+[![](https://c1.staticflickr.com/6/5606/31097837225_8848cf4384_c.jpg)](https://flic.kr/p/Po1xzk)
+
 Once we reached the top of the tower, the face climbing began. Clayton linked the next two awesome face climbing pitches with ease to the top of the “Elephant’s Trunk”. This was pure fun on great quality rock with easy pro, allowing us to move really fast. We proceeded through about three to four more straightforward and fun face pitches, stretching the rope with each pitch until the angle of the rock began to taper, and the route proceeded rightward. The views down the canyon at this point were spectacular. We could see, and hear, many parties on other routes on Black Velvet Wall. At one point we were startled by a couple of biplanes dive-bombing and barrel-rolling into the canyon, just a few hundred yards away from us. 
+
+[![](https://c1.staticflickr.com/6/5483/31097837925_d12a26ab29_c.jpg)](https://flic.kr/p/Po1xMp)
+
+[![](https://c1.staticflickr.com/6/5335/30291186393_6270738185_c.jpg)](https://flic.kr/p/N9Jfon)
+
+[![](https://c1.staticflickr.com/6/5500/30291189673_deebba0681_c.jpg)](https://flic.kr/p/N9JgmV)
+
+[![](https://c1.staticflickr.com/6/5476/31097840455_06bb464d21_c.jpg)](https://flic.kr/p/Po1yx2)
 
 We opted to simul-climb when the angle eased, which allowed us to move very quickly. We continued for a few hundred feet towards the top of Black Velvet Peak along a relaxed, rightward leaning ramp, capped by a giant pine tree at its finish. After reaching the big tree, we unroped, and walked up about another 200-300 vertical feet to the top of Black Velvet Peak. The expansive vista of the desert and Las Vegas was incredible, and it was hard to believe we had covered so many vertical feet. 
 
+[![](https://c1.staticflickr.com/6/5468/31097841395_d5e9434767_c.jpg)](https://flic.kr/p/Po1yPe)
+
+[![](https://c1.staticflickr.com/6/5555/30730888670_e944eec862_c.jpg)](https://flic.kr/p/NPzQy7)
+
 While we had heard that many parties have epic’d on the descent, we had no issues.  We followed a ridgeline east from the Black Velvet summit, marked by ample cairns, until a winding and steep trail led to the northeast down the side of the ridge. After dropping down about 1000 ft, we joined the descent trail leading off Whiskey Peak, which we followed back to the main trail and onwards towards the parking lot. Another 30-45 minutes of walking got us back to our prizes: delicious warm beer and water at the car.
+
+[![](https://c1.staticflickr.com/6/5495/30730889490_dd4457804f_c.jpg[)](https://flic.kr/p/NPzQNf)
+
+[![](https://c1.staticflickr.com/6/5530/30984184691_a9d7d9a0e0_c.jpg)](https://flic.kr/p/PcY3CT)
 
 Overall, Epinephrine was a really phenomenal climb, and we felt accomplished having climbed it in good style, making it back to the car well before dark. The following day, Saturday, was a planned rest day, which we used to pack up and drive towards St. George, Utah, where we would be staying with a family friend of Clayton’s for the night. 
 
 
-ZION (Clayton’s voice)
+# ZION (Clayton’s voice)
 
 After not much more than a short hike on Saturday, we felt well-rested as we drove into Zion National Park on Sunday morning. Despite this being my third visit to the park in four years, I still could not help but stare at the towering red walls that surround the town of Springdale at the mouth of the canyon. The knowledge that this time I would actually be doing some serious climbing heightened my excitement, but I have to admit I also was a little intimidated. For some reason, Zion’s massive blank faces and sandy ridges were more foreboding than the tall walls of Black Velvet canyon, despite their apparent similarities. The hue of the sandstone was a deeper red here, seemingly more powerful. The cold wind that whipped through our campsite as we set up the tent didn’t make us feel any more comfortable. On top of it all, we did not see anyone else who was obviously a climber, another distinction from the scene at Red Rock where climbers’ vans and trucks were double-triple-parked throughout the campground.
 
@@ -75,7 +99,3 @@ Without wasting too much time, we started off on the descent, which involved a s
 At this point, it sunk in: we had climbed Toughstone Wall successfully. All the planning, training, and dreaming culminated as perfectly as we could have hoped for. The feelings we felt are familiar if you’ve experienced them—the warm glow of all-day physical effort, the sense of safety after prolonged exposure, all steeped in the joy of accomplishment. We felt pretty damn good, and slept quite soundly that night.
 
 The following day, the last day of the trip, turned out to be a rest and recovery day. A drive and hike up in Kolob Canyon felt just right, to get the body moving without much stress on the hands, fingers, and skin. On our hike, we eyed some awesome-looking lines on the big walls in Kolob Canyon. We didn’t see another soul the whole time. What special places, Zion and Kolob both. Before we even drove out of the canyon, I was already thinking about when I could return.
-
-[![](https://c1.staticflickr.com/1/537/19987085889_f59c30727e_c.jpg)](https://flic.kr/p/wsc3i8)
-
-
